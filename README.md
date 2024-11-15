@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PowerofMoll, MollofPower was taken :c
+- 👋 Hi, I’m @PowerofMoll, MollofPower was taken :c (also Emil Molin)
 - 👀 I’m interested in blood on the clocktower.
 - 🌱 I’m currently learning how to draw.
 - 📫 How to reach me use discord, @mollofpower
